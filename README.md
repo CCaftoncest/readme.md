@@ -13,4 +13,7 @@ KreekCraft x MiniToon (NOT IRL FOR BOTH THIS AND THE ONE ABOVE)
 AftonCest
 This is a WIP
 
-We have been diagnosed w/ AuDHD, Anxiety, DID and one that makes us lose blood easily
+We have been diagnosed w/ AuDHD, Anxiety, DID and one that makes us lose blood easily.
+
+
+Blinkies
