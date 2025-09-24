@@ -4,13 +4,13 @@ We are Transmasc Bigender, I (CC) am part of the LifeVoid system and most of us 
 
 # Ships!!!!!!
 Andrew x Ashley
-CC (Evan) x Elizabeth
-Cassie x William
-Cassidy x Micheal
-Henry x Charlie x Micheal
-Tubbo x BBH (BadBoyHalo)
-KreekCraft x MiniToon (NOT IRL FOR BOTH THIS AND THE ONE ABOVE)
-AftonCest
-This is a WIP
+CC (Evan) x Elizabeth   
+Cassie x William   
+Cassidy x Micheal   
+Henry x Charlie x Micheal   
+Tubbo x BBH (BadBoyHalo)   
+KreekCraft x MiniToon (NOT IRL FOR BOTH THIS AND THE ONE ABOVE)   
+AftonCest   
+This is a WIP                                
 
 We have been diagnosed w/ AuDHD, Anxiety, DID and one that makes us lose blood easily
