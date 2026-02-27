@@ -1,16 +1,22 @@
-# Stuff about me
+# "His little whispers... love me, love me.."
 
-We are Transmasc Bigender, I (CC) am part of the LifeVoid system and most of us are profic/proship or maybe even darkship and comship. We all yumeship Stud (WE LOVE U SM <3), We use Bigay and Hey/They/She as refering to all of us but please keep in mind some of us use She/Her pronouns.
+Please use Sam or Sammy while refering to all of us, Collectivlly Shi / He / It or Star / Daydream + / Moon.
+Minor (14 - 17)
 
-# Ships!!!!!!
-Andrew x Ashley
-CC (Evan) x Elizabeth
-Cassie x William
-Cassidy x Micheal
-Henry x Charlie x Micheal
-Tubbo x BBH (BadBoyHalo)
-KreekCraft x MiniToon (NOT IRL FOR BOTH THIS AND THE ONE ABOVE)
-AftonCest
-This is a WIP
+Host: CC / BV - Taken , He / Doll + / Sleep / Bite
+                           -------------                                Co Host: Hellfire , He / They / Xe / Spook
 
-We have been diagnosed w/ AuDHD, Anxiety, DID and one that makes us lose blood easily.
+F/o's
+Stud - Strictly Non-sharing (dni doubles)
+Velvette - Non-sharing (some exceptions)
+Cyn - Selective-sharing
+Squiddo - Semi-sharing
+
+Kins + Irls
+Hyacine (Irl , dni doubles) (Honkai Star Rail)
+Ai Hoshino (Very High Kin) (Oshi No Ko)
+Hoppy Hopscotch (Medium Kin) (Poppy Playtime)
+Candy Cat (Low Kin) (Poppy Playtime)
+Dyle (Low Kin) (Dandys's World)
+
+# " That's all I ask for... love me, love me! "
